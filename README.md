@@ -9,4 +9,4 @@
 - 😄 Pronouns: They/dude/bro/sis/etc, or anything else goes that's not degrading.
 - ⚡ Fun fact: During the fall of 2024 I got accepted to the Helsinki University to study world's languages and language sciences!
 
-> _Have not started studying yet as there's a massive spoon shortage on the brain goblin factory. Maybe fall 2025‽_
+> _Have not started studying yet as there's a massive spoon shortage on the brain goblin factory. Maybe during fall 2025‽_
